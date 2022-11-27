@@ -1,3 +1,3 @@
 ### Hi there 👋, I'm Yến.
-https://i.pinimg.com/564x/eb/a7/47/eba7470f8ee1f5f1f2dbc62762205a3f.jpg
 
+![image](https://user-images.githubusercontent.com/118466630/204114776-1b7985bb-625f-428f-8c68-f5ac56a84c04.png)
